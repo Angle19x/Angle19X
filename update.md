@@ -1,16 +1,28 @@
 <h1 align="center">Angle 19X List ⚡</h1> 
 <div align="center">
   <!-- Last Updated -->
-    <img src="https://img.shields.io/badge/Updated-Mar 14, 2019-orange.svg?longCache=true&style=flat-square"
+    <img src="https://img.shields.io/badge/Updated-Mar 14, 2019-blue.svg?longCache=true&style=flat-square"
       alt="_time_stamp_" />
 </div>
+<div align="center">
+  <sub> update list by ❤ https://www.facebook.com/Anglesocial19upx
+</div>
+
+## list
+
+- [YAI-PHOTO](#yai-photo)
 
 
-#ใหญ่โฟโต้
+## YAI PHOTO
+ [:open_file_folder:](https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ!lQt0yDya) 
 
-https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ!lQt0yDya
+ <a href="https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ!lQt0yDya">
+  <img src="https://user-images.githubusercontent.com/48562464/54376456-b3bc5580-46b5-11e9-86e2-a8852cc3c692.png" alt="discord logo" width="700" height="400">
 
-#XY
+
+
+
+## XY
 
 https://drive.google.com/drive/folders/1RCyOn9kVO_sRizqUciNXonaaHYkJvl5m
 
