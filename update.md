@@ -14,10 +14,10 @@
 
 
 ## YAI PHOTO
- [:open_file_folder:](https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ!lQt0yDya) 
+ :open_file_folder:[view](https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ!lQt0yDya) 
 
  <a href="https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ!lQt0yDya">
-  <img src="https://user-images.githubusercontent.com/48562464/54376456-b3bc5580-46b5-11e9-86e2-a8852cc3c692.png" alt="discord logo" width="500" height="200">
+  <img src="https://user-images.githubusercontent.com/48562464/54376456-b3bc5580-46b5-11e9-86e2-a8852cc3c692.png" alt="discord logo" width="500" height="300">
 
 
 
