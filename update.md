@@ -1,4 +1,10 @@
-ตรงนี้สำหรับ ลิงค์ video/photo นะครับอัพเดทเรื่อยๆ
+<h1 align="center">Angle 19X List ⚡</h1> 
+<div align="center">
+  <!-- Last Updated -->
+    <img src="https://img.shields.io/badge/Updated-Mar 14, 2019-orange.svg?longCache=true&style=flat-square"
+      alt="_time_stamp_" />
+</div>
+
 
 #ใหญ่โฟโต้
 
