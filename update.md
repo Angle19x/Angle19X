@@ -14,6 +14,7 @@
 - [Xuenyenyen](#xuenyenyen)
 - [Jenella Ooi Bunnyjanjan](#jenella-ooi-bunnyjanjan)
 - [Christabel Chua](#christabel-chua)
+- [Abymonsta](#abymonsta)
 
 
 ## YAI PHOTO
@@ -41,11 +42,11 @@
 
 ![ac](https://user-images.githubusercontent.com/48562464/54379681-714a4700-46bc-11e9-95ef-8cbff7b238dd.png)
 
-
-
 ## Abymonsta
+:syringe:  [google drive](https://drive.google.com/drive/folders/1Sq9i9bwUpHiMf156CdDMdU8MwvQ1VfCB) 
 
-https://drive.google.com/drive/folders/1Sq9i9bwUpHiMf156CdDMdU8MwvQ1VfCB
+![ac](https://user-images.githubusercontent.com/48562464/54379920-f3d30680-46bc-11e9-8555-eb2ab4ee59bb.png)
+
 
 ## thai
 
