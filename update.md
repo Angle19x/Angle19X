@@ -26,8 +26,8 @@
 ## Xuenyenyen
 :syringe:  [view](https://drive.google.com/drive/folders/1RCyOn9kVO_sRizqUciNXonaaHYkJvl5m) 
 
- <a href="https://drive.google.com/drive/folders/1RCyOn9kVO_sRizqUciNXonaaHYkJvl5m">
-  <img src="https://user-images.githubusercontent.com/48562464/54378407-d5b7d700-46b9-11e9-9487-84981825ceb4.png" alt="discord logo" width="450" height="250">
+![ac](https://user-images.githubusercontent.com/48562464/54379206-870b3c80-46bb-11e9-92b3-0f90d0538061.png)
+
 
 ## jenella
 
