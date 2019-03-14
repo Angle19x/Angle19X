@@ -12,11 +12,12 @@
 
 - [YAI-PHOTO](#yai-photo)
 - [Xuenyenyen](#xuenyenyen)
-- [Xuenyenyen](#jenella-ooi-bunnyjanjan)
+- [Jenella Ooi Bunnyjanjan](#jenella-ooi-bunnyjanjan)
+- [Christabel Chua](#christabel-chua)
 
 
 ## YAI PHOTO
-:syringe:  [view](https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ) 
+:syringe:  [meage](https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ) 
 
  <a href="https://mega.nz/#F!4Q8j2LIb!Gj9K2lDQ08EVlFGimkuhEQ">
   <img src="https://user-images.githubusercontent.com/48562464/54376456-b3bc5580-46b5-11e9-86e2-a8852cc3c692.png" alt="discord logo" width="450" height="250">
@@ -25,19 +26,22 @@
 
 
 ## Xuenyenyen
-:syringe:  [view](https://drive.google.com/drive/folders/1RCyOn9kVO_sRizqUciNXonaaHYkJvl5m) 
+:syringe:  [google drive](https://drive.google.com/drive/folders/1RCyOn9kVO_sRizqUciNXonaaHYkJvl5m) 
 
 ![ac](https://user-images.githubusercontent.com/48562464/54379206-870b3c80-46bb-11e9-92b3-0f90d0538061.png)
 
 
 ## Jenella Ooi Bunnyjanjan
-:syringe:  [view](https://drive.google.com/drive/folders/1Gz48vHXiF40temo0x_PlgIXin93Vs2cu) 
+:syringe:  [google drive](https://drive.google.com/drive/folders/1Gz48vHXiF40temo0x_PlgIXin93Vs2cu) 
 
 ![ac](https://user-images.githubusercontent.com/48562464/54379384-dfdad500-46bb-11e9-8dc2-4a205ef3e7a8.png)
 
-## Christabel
+## Christabel Chua
+:syringe:  [google drive](https://drive.google.com/drive/folders/1_SL9GJu1HXtJBmLKRMGCrTVFBnw4xMgz) 
 
-https://drive.google.com/drive/folders/1_SL9GJu1HXtJBmLKRMGCrTVFBnw4xMgz
+![ac](https://user-images.githubusercontent.com/48562464/54379681-714a4700-46bc-11e9-95ef-8cbff7b238dd.png)
+
+
 
 ## Abymonsta
 
